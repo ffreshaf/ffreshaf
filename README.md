@@ -20,6 +20,7 @@ A few of my projects are public here on GitHub, but most of what I build lives i
 
 - I have **two cats and a dog** the real project managers at home.
 - I play **guitar and bass**, and I'm in a band.
+- I love to watch **movies** and **TV series**.
 - I'm currently studying **music production** and having a lot of fun with it.
 
 ## Say hi!
